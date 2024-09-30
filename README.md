@@ -1,12 +1,4 @@
-- konichiwar yo soy @ieatred40
- - m interesn ...          r orblox
-- i ls roblx
-- 💞️ Im lokina
-- roblv ...
-  - jklll
- 
-  - 
-- roblox
+pantera robotica is the sigma
 
 <!---
 ieatred40/ieatred40 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
